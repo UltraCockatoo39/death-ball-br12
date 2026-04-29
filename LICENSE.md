@@ -1,4 +1,4 @@
-
+hidden Script for death ball is the best death ball Script, featuring instant win and silent aim. Safe and powerful for all your needs.
 
 
 
